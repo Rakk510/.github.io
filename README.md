@@ -1,4 +1,5 @@
 # Alexander Freeman
+
 **About Me**
 Alexander Freeman is a disabled graduate student living and researching in the Canadian Prairies. Alex researches the digital divide between the disabled and abled community and the ways in which public libraries can bridge this gap to create resilient communities of belonging. 
 
